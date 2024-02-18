@@ -243,4 +243,3 @@ optimizasyonu ve karmaşık sorguların yazımı gibi pratik becerileri de geli�
 sürecinde elde ettiğim bu derin bilgileri, iş hayatımda etkili bir şekilde kullanmayı
 hedefliyorum.
 Teşekkürler.
-Musa Emir Doğan
